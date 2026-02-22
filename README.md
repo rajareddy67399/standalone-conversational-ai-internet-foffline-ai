@@ -1,1 +1,1 @@
-# standalone-conversational-ai-internet-foffline-ai
+# standalone-conversational-ai-internet-free
